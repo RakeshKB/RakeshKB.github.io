@@ -1,2 +1,3 @@
 # RakeshKB.github.io
-My Profile
+Click on the link to view my portfolio.
+
